@@ -15,7 +15,7 @@
 </p>
 
 <p align="center">
-  <img src="https://files.catbox.moe/40z6oq.jpg">
+  <img src="https://files.catbox.moe/cc63bi.jpg">
 </p>
 
 <h3 align="center">
